@@ -1,1 +1,1 @@
-# shivamjgandhi.github.io
+# Thoughts on Learning, Being Human, and Society
